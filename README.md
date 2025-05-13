@@ -1,0 +1,1 @@
+# General-Statistica-Analysis-of-SP500-2000-2025-
